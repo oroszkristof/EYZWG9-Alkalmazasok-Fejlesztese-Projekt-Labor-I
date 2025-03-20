@@ -1,1 +1,0 @@
-# EYZWG9--Alkalmazasok-Fejlesztese-Projekt--Labor-I
